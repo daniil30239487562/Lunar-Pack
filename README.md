@@ -1,1 +1,1 @@
-Choose a file that you need, You have to accept lunar client agreements and Dortaina agreements WARNING: Opencore File is only for coffelake and whiskeylake its not for lunar client its to install mac os its just a bundle to  install mac os easily.
+Choose a file that you need, You have to accept lunar client agreements and Dortaina agreements WARNING: Opencore File is only for coffelake and whiskeylake its not for lunar client its to install mac os its just a bundle to install mac os on pc not requiered for lunar its just opencore efi not dangerous file its already tested.
